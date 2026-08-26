@@ -1,3 +1,0 @@
-STIVEN GUERERRO:(  
-
-LUNA LEON  :(
